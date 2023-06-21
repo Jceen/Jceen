@@ -11,8 +11,6 @@ Email: chimanwiyi@gmail.com
 
 LinkedIn: @ChimaNwiyi
 
-Twitter: @Jceenchima
-
 Feel free to connect with me through any of these channels, and let's explore the possibilities of creating innovative projects!
 
 <!--
